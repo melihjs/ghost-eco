@@ -43,4 +43,4 @@
 
 ## Telif Hakkı:
 
-   - Ghost Development: [Tıkla!](https://discord.gg/delimine)
+   - Ghost Development: [Tıkla!](https://discord.gg/ya9Gw8hBb2)
